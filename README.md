@@ -1,5 +1,6 @@
 ### Hello there 👋
 
-My name is Muhammad Varhan Kusuma. I am a student majoring in information systems at Budi Luhur university. 
-I am very interested in expanding my Knowledge
+Introducing my name is Muhammad Varhan Kusuma. I am a student majoring in information systems at Budi Luhur University. 
+I am very interested in expanding my knowledge around the field of technology, let's be friends.
+
 
